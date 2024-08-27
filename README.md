@@ -1,8 +1,8 @@
 -👋 Hi, I’m @Kemi111
 - 👀 I’m interested in aprender
 - 🌱 I’m currently learn tudo
-- 💞️ I’m looking to collaborate on vida
-- 📫 How to reach me sla
+- 💞️ I’m looking to collaborate com a vida
+- 📫 How to reach me wpp
 - 😄 Pronouns ela dela
 - ⚡ Fun fact: ♥ 
 
